@@ -1,1 +1,1 @@
-# HSB2006E---L-p-tr-nh-v-ng-d-ng-c-ng-ngh-trong-kinh-doanh
+# HSB2006E-
